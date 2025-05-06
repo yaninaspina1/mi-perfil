@@ -15,4 +15,6 @@ Soy **Data Scientist** y **Data Engineer Jr.** con experiencia en el análisis d
 
 ## Conectemos:
 - [LinkedIn](https://www.linkedin.com/in/yanina-spina-543853279)
-- [GitHub](https://github.com/YaninaSpina)
+- [GitHub](https://github.com/YaninaSpina1)
+- mail yanina_05_19@hotmailcom
+- 
